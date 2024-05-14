@@ -1,1 +1,2 @@
-TG: https://t.me/GePPcha
+Gmail: gordya1564@gmail.com
+Telegram: https://t.me/GePPcha
