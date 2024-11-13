@@ -1,2 +1,2 @@
-Gmail: gordya1564@gmail.com<br />
+Gmail: horiimoroz@gmail.com<br />
 Telegram: https://t.me/GePPcha
